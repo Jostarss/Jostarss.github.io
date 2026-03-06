@@ -1,1 +1,1 @@
-# Jostarss's homepage
+Hello, I'm Jostarss.
